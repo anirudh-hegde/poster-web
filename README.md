@@ -1,1 +1,1 @@
-# Developed a simple website just to test test my skills
+# Developed a simple website just to test my skills
